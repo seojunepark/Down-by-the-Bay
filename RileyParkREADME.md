@@ -15,7 +15,7 @@ Down by the bay.
 
 Down by the cave
 Where the kittens bark
-I refuse to se
+I refuse to visit
 I dare to never go
 For if I do
 My mother will say
